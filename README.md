@@ -59,3 +59,14 @@ Reply here:
 
 ### ⚙️ Fun Mode  
 I break things until they work 😎
+
+---
+
+### 🧪 Secret Protocol
+
+Most people stop scrolling here.
+
+If you didn’t, good.
+
+▶ Enter experimental zone:  
+[PROTOCOL: Gamming-SERVICE // 404](https://github.com/Gamming-SERVICE/protocol-gs-404)
